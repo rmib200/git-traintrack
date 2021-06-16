@@ -1,1 +1,2 @@
-minc is verrrry cool
+minc is supercool and very cool
+
